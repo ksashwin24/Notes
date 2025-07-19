@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto&weight=900&size=35&pause=1000&color=FFFF00&width=150&height=60&lines=Notes)](https://git.io/typing-svg)
